@@ -1,1 +1,0 @@
-# bridgetmensah.github.io
